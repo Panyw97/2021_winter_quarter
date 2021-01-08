@@ -1,1 +1,0 @@
-# 2020_winter_quarter
